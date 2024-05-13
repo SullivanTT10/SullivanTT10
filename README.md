@@ -1,5 +1,5 @@
 ### Bem Vindos ao meu perfil🖤
--Meu nome Wendel
+-Meu nome é Wendel
 -Tenho 16 Anos
 -Estou usando o Alura
 -Se quiser me conhecer meu Instagram é @wendel07_.
